@@ -1,2 +1,2 @@
 # Certifications
-Certifications - no exclusive to Meta, LinkedIN...Linux...etc
+Certifications - not exclusive to Meta, LinkedIN...Linux...etc
